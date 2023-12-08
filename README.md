@@ -1,6 +1,6 @@
 # App-Dev
  My first repository
-#  Add info about my favorite series
+#  **Additional Information:** My Favorite Series/Movie
 
 1. **Squid Game**
 2. **Attack On Titan**
