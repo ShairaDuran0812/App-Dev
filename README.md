@@ -14,7 +14,8 @@
 **NEW JEANS** [NewJeans](https://www.youtube.com/channel/UCMki_UkHb4qSc0qyEcOHHJw)
 
 
-My ultimate bias is **Hanni Pham** :rabbit: She's really adorable  :exclamation:  :exclamation:  :exclamation:
+My ultimate bias is **Hanni Pham** :rabbit: 
+She's really adorable  :exclamation: :exclamation: :exclamation:
 
 ![hanniiko](https://tenor.com/view/hanni-pham-new-jeans-gif-27208586.gif) 
 ![youHanni](https://tenor.com/view/newjeans-hanni-gif-2905295155407316207.gif)
