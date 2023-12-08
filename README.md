@@ -13,13 +13,23 @@
 
 **NEW JEANS** [NewJeans](https://www.youtube.com/channel/UCMki_UkHb4qSc0qyEcOHHJw)
 
+:heartpulse:   My ultimate bias is  
 
-:heartpulse: My ultimate bias is **Hanni Pham** :rabbit: 
+:rabbit:  **Hanni Pham** :rabbit: 
 
 :exclamation: :exclamation: :exclamation: She's really adorable  :exclamation: :exclamation: :exclamation:
 
+
 ![hanniiko](https://tenor.com/view/hanni-pham-new-jeans-gif-27208586.gif) 
-![youHanni](https://tenor.com/view/newjeans-hanni-gif-2905295155407316207.gif)
+
+
+
+
+
+
+![youHanni](https://tenor.com/view/newjeans-hanni-kpop-hanni-pham-new-jeans-gif-2698080586181399112.gif)
+
+
 
 :microphone: **She is also good at singing!! Try to listen to her cover!** :notes: :notes: 
 
@@ -56,4 +66,11 @@
 
 
 
-:heartpulse:  That's all heheh!! I hope you like it!! <3 Nice to meet you!!  :heartpulse: 
+
+
+
+
+  
+:heartpulse:  That's all heheh!! I hope you like it!! 
+
+Nice to meet you!!  :heartpulse: 
